@@ -1,4 +1,4 @@
-**粤|ENG|한**/🎸🎹**Musician**/♟️**Chess**/💻**Computer Science + Machine Learning (Transitioning to Quantitative Finance)**/📐**Math**
+**粤|ENG|한**/🎸🎹**Musician**/♟️**Chess**/💻**Computer Science + Machine Learning**/📐**Math**
 \
 \
 ***Pray for the peace of Jerusalem: "May those who love you be secure'"***
